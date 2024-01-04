@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @mktytt
+akthzmp@gmail.com- 👋 Hi, I’m @mktytt
 - 👀 I’m interested in online Gambling Business.
 - 🌱 I’m currently learning Crypto Trading.
 - 💞️ I’m looking to collaborate on Github.
